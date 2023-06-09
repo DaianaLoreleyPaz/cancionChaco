@@ -3,7 +3,7 @@ cancion para modificar
  Tu vencerás… pero que duro amor para quererte
 Un torrente de  ramas 
 un ronco precipicio de guitarras
-Tu vencer
+Tu hh
 que nadie se equivoque, aquí el  mundo
 tiene lanzas guardando sus  espadas
 va frente a frente, un sol tan insolente
