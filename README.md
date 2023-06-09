@@ -1,7 +1,6 @@
 # cancionChaco
 cancion para modificar
- Tu vencerás… pero que duro amor para quererte
-Un torrente de  ramas 
+canta tu canto Chaco
 un ronco precipicio de guitarras
 Tu hh
 que nadie se equivoque, aquí el  mundo
@@ -40,3 +39,4 @@ Canta tu canto Chaco
 Canta tu canto Chaco
 Canta tu canto Chaco
 Canta tu canto Chaco
+chac.k
