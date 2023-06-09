@@ -1,17 +1,17 @@
 # cancionChaco
 cancion para modificar
  Tu vencerás… pero que duro amor para quererte
-Un torrente de manos rigurosas
+Un torrente de  ramas 
 un ronco precipicio de guitarras
-Tu vencerás…
-que nadie se equivoque, aquí la tierra
-tiene lanzas guardando sus espaldas
+Tu hh
+que nadie se equivoque, aquí el  mundo
+tiene lanzas guardando sus  espadas
 va frente a frente, un sol tan insolente
-hacia los cuatro puntos cardinales
+hacia los cuatro puntos de la tierra
 1
 
-'Eres Chaco de sol y campesinos
-brazos altos van a levantarte
+'Eres Chaco de sol y campero
+brazos altos van a  despertarte
 hacia el tiempo final donde se duermen
 un niño y una estrella de la mano
 2
