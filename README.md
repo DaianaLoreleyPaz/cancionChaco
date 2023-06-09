@@ -1,6 +1,6 @@
 # cancionChaco
 cancion para modificar
- Tu vencerás… pero que duro amor para quererte
+Tu … pero que duro amor para quererte
 Un torrente de manos rigurosas
 un ronco precipicio de guitarras
 Tu vencerás…
